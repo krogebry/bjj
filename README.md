@@ -2,6 +2,8 @@
 
 This is my job, this is my profession.
 
+[fight video](https://photos.app.goo.gl/WtpWVb5P7VvYdung6)
+
 # Schedule
 
 * 2023
